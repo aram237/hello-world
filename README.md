@@ -3,4 +3,5 @@ Just to start
 
 Hi everyone. 
 
-I am a PMP student at UW EE
+I am aram237
+Spartak fun
